@@ -1,1 +1,1 @@
-Comunity github organizce pro Střední průmyslová školu a Gymnázium Na Třebešíně
+Comunity github organizace pro Střední průmyslová školu a Gymnázium Na Třebešíně
